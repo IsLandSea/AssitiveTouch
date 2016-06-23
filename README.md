@@ -5,6 +5,6 @@
 
 
 
-![Mou icon](http://192.168.1.128:8080/yiguilin/test.gif)
+![Mou icon](http://i4.piimg.com/4851/142354ce57af263c.gif)
  
 
